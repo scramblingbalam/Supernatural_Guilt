@@ -1,0 +1,2 @@
+# Supernatural_Guilt
+My Partner and I  are big Fans of the TV show Supernatural. This show features two brothers who go around and kill vampires demons etc. This often means sacrificing themselves for the world and each other, pretty typical stuff. What is interesting is that since it has gone on fro 14 seasons they keep switch back and forth on who gets to sacrifice themselves. My partner wondered if I could take the scripts a produce a visualization of who is sacrifice and guilt over time. This will be my attempt to do so. 
